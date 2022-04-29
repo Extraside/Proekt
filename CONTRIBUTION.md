@@ -1,0 +1,2 @@
+Che?
+Soglasovanie yes?
